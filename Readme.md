@@ -43,4 +43,4 @@ Eu sou céu e mar
 Eu sou seu e fim
 E o meu amor é imensidão.
 
-Autor: Ivele Sangalo
+Autor: Ivele Sangalo (Só quero ver você)
