@@ -41,4 +41,6 @@ Quando o tempo abrir
 Abra a janela e veja eu sou o sol
 Eu sou céu e mar
 Eu sou seu e fim
-E o meu amor é imensidão
+E o meu amor é imensidão.
+
+Autor: Ivele Sangalo
